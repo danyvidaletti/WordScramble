@@ -1,4 +1,8 @@
 
 
-https://github.com/danyvidaletti/WordScramble/assets/131824763/65933ebe-a40c-4e9d-9a82-9e93d5bcab93
+
+https://github.com/danyvidaletti/WordScramble/assets/131824763/9d6805bb-65e9-4025-b47e-7eabc7ca33ea
+
+
+
 
